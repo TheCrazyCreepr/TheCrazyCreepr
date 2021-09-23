@@ -1,4 +1,4 @@
-👋 Hi, I’m Joshua, also known as @TheCrazyCreepr !
+👋 Hi, I’m Joshua.
 
 I am a massive Photography and Computer nerd.
 
